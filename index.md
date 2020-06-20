@@ -1,4 +1,3 @@
-## James W. Vizzard
 ### PhD Student in Political Science
 ### Schar School of Policy and Government at George Mason University
 
